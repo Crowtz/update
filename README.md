@@ -1,3 +1,6 @@
 # Projetos
+📬 Business contact: Discord: crowtz
+🚫 Currently not accepting new proposals.
+
 📬 Contato para negócios: Discord: crowtz
-🚫 No momento, não estou aceitando novas propostas.
+🚫 Atualmente não estou aceitando novas propostas.
